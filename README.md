@@ -1,1 +1,1 @@
-# bewerbung-Ausbildung
+Ausbildungsbewerbung
